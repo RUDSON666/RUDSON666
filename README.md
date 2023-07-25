@@ -1,4 +1,4 @@
-- 👋 me chamo Rudson war
+- 👋 me chamo Rudson warley
 - em busca da programação inexplicavel
   
 
